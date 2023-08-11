@@ -4,7 +4,7 @@
 Bachelor of Technology (2019–23)
 
 ### Jagran Public School
-Intermediate, (2018-19)
+Intermediate (2018-19)
 
 
 ## Skills
